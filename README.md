@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @selfishpoop
+- 👀 I’m interested in poop
+- 🌱 I’m currently learning to poop
+- 💞️ I’m looking to collaborate on pooping
+- 📫 How to reach me < redacted >
